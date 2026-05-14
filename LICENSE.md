@@ -1,4 +1,4 @@
-#  
+#  Experience restaurant tycoon 3 like never before with advanced restaurant tycoon 3 Scripts, the #1 Script. Includes auto-farm and invisibility for
 
 
 
